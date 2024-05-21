@@ -1,4 +1,7 @@
-### Hi there 👋
+### random person with randoms thoughts :v
+
+
+### 🔥 this is fine :) 🔥
 
 <!--
 **AlguemExistindo/AlguemExistindo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
