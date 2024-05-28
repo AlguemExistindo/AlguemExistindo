@@ -1,4 +1,4 @@
-### random person with randoms thoughts :v
+### just a random person existing 👍
 -
 -
 -
